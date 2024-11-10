@@ -5,8 +5,4 @@
 # call developers 
  https://wa.me/+2250799684818
  https://wa.me/+2250565647864
-
-
-
-
-• click
+ 
