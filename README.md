@@ -10,4 +10,4 @@
 
 
 • click 
-https://pairing_code_QR_scan
+https://replit.com/@mznking04/BOT-PAIRING-CODE
