@@ -9,5 +9,4 @@
 
 
 
-• click 
-https://replit.com/@mznking04/BOT-PAIRING-CODE
+• click
